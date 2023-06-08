@@ -1,1 +1,0 @@
-# FigmaRedesignJP23
